@@ -9,7 +9,7 @@
 + Black pepper
 
 ## Directions
-Line a baking sheet with aluminum foil. Place baking sheet in oven, and preheat oven to 450°F.
+Line a baking sheet with parchment paper. Place baking sheet in oven, and preheat oven to 425°F.
 
 Cut yams into long match sticks length-wise. Each stick should be the length of the yam _x_ a little less than 1/4". Place into a large mixing bowl.
 
