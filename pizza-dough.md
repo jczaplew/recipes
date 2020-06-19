@@ -2,12 +2,12 @@
 
 ## Ingredients
 
-- AP flour (2.5c)
+- AP flour (320g)
 - Sugar (1tbsp)
 - Salt (1tsp)
 - Yeast (1tsp)
 - Olive oil (3tbsp)
-- Warm water (1c)
+- Warm water (3/4c)
 
 ## Directions
 Mix together dry ingrediants in a food processor. Add liquids and combine until a dough forms. 
