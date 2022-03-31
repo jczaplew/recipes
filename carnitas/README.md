@@ -20,10 +20,10 @@ Dice onion, smash and peel garlic, and remove stems and about half the seeds fro
 
 If pork butt has slab of fat, trim it off, and then cut into about 3-5" chunks. Season liberally on all sides with seasoning mixture. Reserve any left over rub.
 
-Heat 2 tbsp of vegetable oil in a dutch oven on medium heat, and work in batches to brown all sides of the seasoned chunks of pork, removing to a plate when done. Seasoning mixture may burn a bit during this step, so be sure to use a hood vent or open a window.
+Heat 2 tbsp of vegetable oil in a dutch oven on medium-low heat, and work in batches to brown all sides of the seasoned chunks of pork, removing to a plate when done. If the seasoning mixture is burning, turn down the heat.
 
-Clean all oil and burnt bits from the dutch oven. Return to medium heat, add a tablespoon of oil, then add onion, garlic, and peppers and saute until onion softens and garlic is fragrent. Return pork and juices to pot. Zest the orange into the pot, and then squeeze juice in. Add about 2 tsp of salt and a healthy dose of black pepper. Add enough water so that the pork is just barely covered and bring to a boil.
+Remove all but 2 tbsp of fat from the dutch oven. Return to medium heat, then add onion, garlic, and peppers and saute until onion softens and garlic is fragrent. Return pork and juices to pot. Zest the orange into the pot, and then squeeze juice in. Add about 2 tsp of salt and a healthy dose of black pepper. Add enough water so that the pork is just barely covered and bring to a boil.
 
-Simmer on medium-low for about 2 hours stirring occasionally. If a large layer of fat renders skim some off. As the liquid reduces, break apart the chunks of pork so that they stay submerged. When liquid has reduced to about 1/3 of the original amount lightly shred the pork with two forks. Increase heat and simmer, stirring fairly frequently and further breaking apart pork until the rest of the liquid is absorbed. Keep cooking until lightly crisped.
+Simmer on low for about 4 hours stirring occasionally. If a large layer of fat renders skim some off. As the liquid reduces, break apart the chunks of pork so that they stay submerged. When liquid has reduced to about 1/3 of the original amount lightly shred the pork with two forks. Increase heat and simmer, stirring fairly frequently and further breaking apart pork until the rest of the liquid is absorbed. Keep cooking until lightly crisped.
 
 Serve on corn tortillas with guacamole, cotija, shredded red cabbage, and cilantro. Or whatever you like. 
